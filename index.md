@@ -1,2 +1,2 @@
 # About me
-Hi I'm YAN Minrui, 
+Hi I'm YAN Minrui!
